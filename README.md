@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning blockchain techology
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me travischongtham80@gmail.com/chjohn727@gmail.com
-- 😄 Pronouns: travis
+- 😄 Pronouns: john
 - ⚡ Fun fact: ...
 
 <!---
